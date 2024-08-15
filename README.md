@@ -3,10 +3,9 @@
 Meu nome é Déborah Vieira
 
 - Estou estudando no Alura infelizmente
-- Utilizo esse espaço para minha organização mental
-- e por gentileza não entre em contato comigo
+- Utilizo esse espaço para minha organização mental ou para a falta dela
+- Por gentileza não entre em contato comigo
 
-  
-obrigada 😘
+  obrigada 😘
 
-![](https://media.tenor.com/xWPaojwX8g0AAAAM/skeleton-meme.gif)
+![](https://media.tenor.com/P0tX6a_nVIkAAAAM/grinch-smile-grinch.gif)
